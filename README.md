@@ -2,7 +2,7 @@
 # Sylvana ARAQUE
 ![image](https://github.com/Syssy5/cv2/blob/main/image.jpg)
 
-[LinkedIn] (https://www.linkedin.com/checkpoint/challenge/AgHayOJDPaFaoQAAAYwROEHeb2fatPz6OlkHEEUTICu0KBYGqmhH00P4MmtpeTy8p-dc6ZXDNdkIhaK-9SQuJAcEKCz5vw?ut=1h70Yum6dLDb01) 
+[LinkedIn](https://www.linkedin.com/checkpoint/challenge/AgHayOJDPaFaoQAAAYwROEHeb2fatPz6OlkHEEUTICu0KBYGqmhH00P4MmtpeTy8p-dc6ZXDNdkIhaK-9SQuJAcEKCz5vw?ut=1h70Yum6dLDb01) 
 
 
 
